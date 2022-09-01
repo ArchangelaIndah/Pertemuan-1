@@ -1,2 +1,1 @@
-# Archangela G Dian I G
-200710723
+# Archangela G Dian I G-200710723
